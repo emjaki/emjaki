@@ -1,6 +1,6 @@
 # Hi, welcome!
 
-😄 My Pronouns: She/Her
+😄 My Pronouns: she/her
 
 💬 Ask me: anything
 
